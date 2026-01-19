@@ -3,6 +3,7 @@ A list of vehicles I've owned in my life.
 
 ## 1: 1976 GMC Scottsdale 4x4
 - not street-worthy, but it was mine
+- traded in on Audi Quattro.
 
 ## 2: 1996 Chevrolet Astro
 - wasn't mine, but I put 80k miles on it
